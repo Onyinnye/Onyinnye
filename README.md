@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-<!--
 Getting to know me
 
 
