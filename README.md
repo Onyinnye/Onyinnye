@@ -9,4 +9,3 @@ Getting to know me
 - 👯 I’m exicted to share my Data journey with you and would love for you to watch my process into becoming a great Data Analyst, so will you hop in the data bus with me?....Lol😄
 - 🤔 I’m looking foward to your honest reviews and applauds as at when due ...
 
--->
